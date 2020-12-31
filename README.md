@@ -1,2 +1,2 @@
-# Ashotosh Singh
+# Ashutosh Singh
 Homepage here 
